@@ -6,7 +6,9 @@
 > If you want to contact me join my [Discord Server](discord.gg/hNGAWVH) and DM me: Fytex#4389 
 
 
-> [![paypal.me/fytex](https://ionicabizau.github.io/badges/paypal.svg)](https://www.paypal.me/fytex)
+> If you would like to make me a millionaire, thanks:
+
+[![paypal.me/fytex](https://ionicabizau.github.io/badges/paypal.svg)](https://www.paypal.me/fytex)
 
 [![GitHub Fytex](https://img.shields.io/github/followers/fytex?label=follow&style=social)](https://github.com/fytex)
 
