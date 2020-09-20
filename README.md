@@ -3,7 +3,7 @@
 > I am currenty studying Software Engineering in Portugal 👨🏽‍💻
 
   
-> If you want to contact me join my [Discord Server](discord.gg/hNGAWVH) and DM me: Fytex#4389 
+> If you want to contact me join my [Discord Server](https://discord.com/invite/hNGAWVH) and DM me: Fytex#4389 
 
 
 > If you would like to make me a millionaire, thanks:
