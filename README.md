@@ -6,7 +6,7 @@
 > If you want to contact me join my [Discord Server](https://discord.com/invite/hNGAWVH) and DM me: Fytex#4389 
 
 
-> If you would like to make me a millionaire, thanks:
+> If you would like to make me a millionaire, thanks in advance:
 
 [![paypal.me/fytex](https://ionicabizau.github.io/badges/paypal.svg)](https://www.paypal.me/fytex)
 
