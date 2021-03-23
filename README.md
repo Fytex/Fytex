@@ -1,7 +1,5 @@
 # What's up! You can call me Fytex
 
-> I am currenty studying Software Engineering in Portugal 👨🏽‍💻
-
   
 > If you want to contact me join my [Discord Server](https://discord.com/invite/hNGAWVH) and DM me: Fytex#4389 
 
