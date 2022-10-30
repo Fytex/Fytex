@@ -1,6 +1,6 @@
 # What's up! You can call me Fytex
 
-> If you would like to contact me: Fytex#4389
+> If you would like to contact me on Discord: Fytex#4389
 
 > If you would like to make me a millionaire, thanks in advance:
 
